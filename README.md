@@ -2,6 +2,7 @@
 Privacy Policy
 
 Easymake
+
 EasyMake Respect and protect the privacy of all users who use the Service. In order to provide you with more accurate and personalized services, Easymake
 EasyMake will use and disclose your personal information in accordance with this Privacy Policy. However, Easymake
 EasyMake will treat this information with a high degree of diligence and prudence. Except as otherwise provided in this Privacy Policy, Easymake
